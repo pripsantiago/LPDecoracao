@@ -1,3 +1,0 @@
-# LPDecoracao
-# LPDecoracao
-# LPDecoracao
